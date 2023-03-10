@@ -1,1 +1,0 @@
-# Coding-Platoons-De-Morgan-s-Law-Quiz
